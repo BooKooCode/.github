@@ -18,5 +18,5 @@ As a startup team, we approach our work with an open mindset and warmly welcome 
 
 * Website: https://bookoocoffee.com
 * Email: develop@bookoocoffee.com
-* WhatsApp: +44 7355 394188 \n
+* WhatsApp: +44 7355 394188
 * Instagram: https://www.instagram.com/bookoo.coffee
